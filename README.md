@@ -10,4 +10,4 @@ I have created this repository for anyone who wishes to use my work on their own
 
 This site will have a few pages for my projects and downloads, among other things. This site may also include some of my upcoming fantasy literature, so be on the lookout!
 
-Have fun, and thanks for visiting The Gamer Hub!
+Have fun, and thanks for visiting the Gamer Hub!
